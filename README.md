@@ -13,4 +13,4 @@ https://github.com/hmfzh/personal-website-task-5
 https://personal-website-task-10-i39twphbo-hmfzhs-projects.vercel.app/
 
 ## Video Rekaman Week 4
-https://drive.google.com/file/d/1z3_6dKesu1JR5mlzsk_3N5AXDrHtYnQc/view?usp=sharing)](https://drive.google.com/file/d/1lw-nzxbgavBERTwCfRoYWEiLUdO5ljGh/view?usp=sharing
+https://drive.google.com/file/d/1lw-nzxbgavBERTwCfRoYWEiLUdO5ljGh/view?usp=sharing
